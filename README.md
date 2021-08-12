@@ -1,2 +1,0 @@
-# kwakjuhun.github.io
-blog
